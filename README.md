@@ -1,1 +1,21 @@
 # 17papa
+http://www.luobuu.com
+http://www.veeves.com
+http://www.fuzu13.com
+http://www.loveu8.com
+http://www.uuggtt.com
+http://www.loosso.com
+http://www.usdoso.com
+http://www.linhe5.com
+http://www.komoyu.com
+http://www.lengluo.cc
+http://www.kant49.com
+http://www.koi555.com
+http://www.kok677.com
+http://www.la12345.cc
+http://www.fffcoo.com
+http://www.tim999.com
+http://www.tiiyun.com
+http://www.aml889.com
+http://www.eurllc.com
+http://www.chonxi.com
